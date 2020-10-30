@@ -1,0 +1,1 @@
+![G](gold)**`[@Lilwab](https://github.com/Lilwab/Mummy.wiki.git)`**
